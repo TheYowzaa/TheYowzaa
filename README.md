@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @TheYowzaa
+- 👀 I’m interested in Game dev & design
+- 🌱 I’m currently learning C++
+- 💞️ I’m looking to collaborate on nothing currently
+- 📫 How to reach me @theyowzaa on discord
+- 😄 Pronouns: he/him but I don't care
